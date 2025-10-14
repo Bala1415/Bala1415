@@ -72,5 +72,5 @@ Feel free to explore my repositories and let me know what you think!
 I’d love to hear from you—whether it’s to brainstorm ideas, collaborate on projects, or just have a chat. Here’s how you can reach me:  
 
 - 📧 **Email**: [aubalavignesh1010@gmail.com](mailto:aubalavignesh1010@gmail.com)  
-- 🌍 **Location**: Sriperumbudur, Tamil Nadu, India  
+- 🌍 **Location**: Chennai, Tamil Nadu, India  
 
